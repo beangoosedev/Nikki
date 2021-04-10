@@ -1,2 +1,2 @@
-# beangoosedev.github.io
+# quebeccorn.xyz
 lol
