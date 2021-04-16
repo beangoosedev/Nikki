@@ -1,2 +1,0 @@
-# quebeccorn.xyz
-lol
